@@ -1,1 +1,1 @@
-https://github.com/rizahanovimam/zakrivayuschiy-teg-ad-main-
+https://github.com/rizahanovimam/zakrivayuschiy-teg-ad
